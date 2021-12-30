@@ -1,2 +1,2 @@
 # ebram-iti-lab2
-![image](https://static.parade.com/wp-content/uploads/2021/11/new-year-wishes.jpg)
+![image](https://www.sampleposts.com/wp-content/uploads/2020/05/happy-new-year-800x533.jpg)
